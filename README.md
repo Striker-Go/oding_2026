@@ -1,3 +1,4 @@
 # oding_2026
 University exam solutions
-fghjklkjhgfghjklkjhgfghjkljhgfghj
+# медж копеееек
+fgffdgdfgdgdfgdgd
