@@ -1,4 +1,4 @@
 # oding_2026
 University exam solutions
-# тимур мамун
+## МЕДЖ ШАМЕК
 fgffdgdfgdgdfgdgd
